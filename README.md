@@ -1,4 +1,4 @@
-# FirstRepo_MarcyLaB
+# FirstRepo_MarcyLab
 My first repository for Marcy Lab
 
 ## About Me
