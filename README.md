@@ -12,3 +12,11 @@ projects in the future!
 - 🎮 I love playing video games such as multiplayer games or story-based games. 
 - 📚 I enjoy reading mysteries, romance, and fantasy novels.
 - ☕ I love tea 
+
+
+## Check This Out!
+![images](https://github.com/user-attachments/assets/54619d92-3907-4cda-8544-7c04b82e06db)
+
+## Check This Out!
+Visit my favorite website: [[GitHub](https://github.com/)](https://www.pinterest.com/)
+
