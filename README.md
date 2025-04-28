@@ -7,6 +7,8 @@ Git and GitHub as part of Marcy Lab. I am excited to
 develop my coding skills and collaborate on awesome
 projects in the future!
 
+![image](https://github.com/user-attachments/assets/e184222a-9519-456b-87a1-9d46ce58e491)
+
 
 ## Fun Facts About Me
 - 🎮 I love playing video games such as multiplayer games or story-based games.
