@@ -7,7 +7,7 @@ Git and GitHub as part of Marcy Lab. I am excited to
 develop my coding skills and collaborate on awesome
 projects in the future!
 
-![image](https://github.com/user-attachments/assets/e184222a-9519-456b-87a1-9d46ce58e491)
+![gif](https://github.com/user-attachments/assets/3c678b39-3413-474b-8cb5-e79660c62f10)
 
 
 ## Fun Facts About Me
