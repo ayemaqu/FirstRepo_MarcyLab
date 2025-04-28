@@ -10,7 +10,7 @@ projects in the future!
 
 ## Fun Facts About Me
 - 🎮 I love playing video games such as multiplayer games or story-based games.
-- - ☕ I love tea
+- ☕  I love tea
 - 🎨 I love to paint with watercolor and sketch 
 - 📚 I enjoy reading mysteries, romance, and fantasy novels.
     - Some of my favorite books so far are:
